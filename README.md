@@ -1,2 +1,19 @@
 # Adressing-Planetoid
-ANDROIDANDROIDANDROIDANDROIDANDROIDANDROIDANDROID  THE ROIIIIIDDSSSS
+
+
+--- 
+
+
+
+WHAT IN THE WOOOORLD
+
+
+
+
+
+
+
+Hey you. To do.
+
+
+---
